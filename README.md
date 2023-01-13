@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @JustMentalMatt
-- 👀 I’m interested in g a m i n g
+- 👀 I’m interested in c o c k
 - 🌱 I’m currently learning HTML, CSS & JS
