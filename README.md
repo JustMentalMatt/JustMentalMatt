@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @JustMentalMatt
-- 👀 I’m interested in c o c k
+- 👀 I’m interested in electronics and software
 - 🌱 I like touching moss
