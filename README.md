@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @JustMentalMatt
 - 👀 I’m interested in electronics and software
 - 🌱 I like touching moss
+- 😋 I don't know things, but I make them work.
